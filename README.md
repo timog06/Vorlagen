@@ -1,1 +1,1 @@
-# Vorlagen
+# Vorlagen aller Arten
